@@ -14,7 +14,7 @@ Click on activation
 Or 
 Click on EZ Activator!
 
-If the steps above failed follow the alternative solution:
+If the steps above failed, follow the alternative solution:
 Steps-
 download the Win10 & office16 activator.rar file inside activator folder
 then install it
